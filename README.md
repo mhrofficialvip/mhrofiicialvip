@@ -1,4 +1,3 @@
-[Profile Banner](https://via.placeholder.com/800x200.png?text=Welcome+to+My+GitHub+Journey)
 
 # 🌟 Assalamu Alaikum! 🌟
 I'm **Mehedi Hasan Rabbi** 🙋‍♂️  
